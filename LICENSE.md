@@ -1,4 +1,4 @@
-#  
+#  driving empire Script rare is the best driving empire Script, featuring infinite resources and auto-farm. Safe and powerful for all your needs.
 
 
 
